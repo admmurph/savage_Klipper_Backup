@@ -1,0 +1,1 @@
+mini Satsana Remix - Ender 3 V2 w/ Original BL/CR Touch Mount by aarboe on Thingiverse: https://www.thingiverse.com/thing:5190569
